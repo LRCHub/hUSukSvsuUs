@@ -1,0 +1,86 @@
+# 晋平太 – ボコボコのMIC
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+I said a Hip Hop the hippie the hippie
+Hip hip hop and you don't stop
+Break it the bang bang boogie
+De bang bang boogie
+I said a Hip Hop the hippie the hippie
+To theHip hip hop and you don't stop
+夢が次々現実になる
+ツギハギだらけの日々
+俺の名前は晋平太
+ラップは俺の人生だ
+狭山の茶畑で夢見てた
+あの頃はただのティーンネイジャー
+ラッパーに憧れてイキってた
+カラオケでマイク握ってた
+聴いてたマイカフォンペイジャー、
+ブッダブランド、キングギドラ
+はじめてのバトルはボロ負け
+金髪でエミネムのモノマネ
+俺の黒歴史超ダセー
+けど無駄だったなんて思わねー
+当時仲間と組んだネオジオンクルー
+気が狂うまでラップしまくる
+ラッパーが将来の夢
+それだけが存在の証明
+I said a Hip Hop the hippie the hippie
+Hip hip hop and you don't stop
+Break it the bang bang boogie
+De bang bang boogie
+I said a Hip Hop the hippie the hippie
+Hip hip hop and you don't stop
+夢が次々現実になる
+ツギハギだらけの日々
+憧れてた赤レンジャー
+一体おれは何レンジャー?
+育った環境にヒントがあった
+色んな意味でおれはチャレンジャー
+ボコられても前に行く
+ボコボコのマイク奪いにいく
+ヒップホップはファイトミュージック
+だが忘れていった愛という軸
+どうすりゃ目立つ有名になる?
+目の色変え目指すゴールドメダル
+自分と誰かを比較してた
+それが人格も小ちゃくしてた
+方位磁針はグルグル回って
+ハリボテのジシンは崩れ落ちたけど
+時が経ちやっとわかった
+勝ち負けの外に価値があった
+I said a Hip Hop the hippie the hippie
+Hip hip hop and you don't stop
+Break it the bang bang boogie
+De bang bang boogie
+I said a Hip Hop the hippie the hippie
+To theHip hip hop and you don't stop
+夢が次々現実になる
+ツギハギだらけの日々
+俺の名前は晋平太
+ラップは俺の人生だ
+あっという間の 20 年間
+ラッパーとして生きてきた
+初めはただの趣味だった
+ただラップが好きだった
+今じゃ水木金土日月火
+やってもあきないビジネスさ
+多くの仲間が消えていった
+悔しかったのも知ってんだ
+フト思い出してんだ
+この人生一遍だ
+少し質問していいですか?
+なんで誰かの振りしてんだ?
+自分の人生生きてるか?
+その人生好きですか?
+I said a Hip Hop the hippie the hippie
+Hip hip hop and you don't stop
+Break it the bang bang boogie
+De bang bang boogie
+I said a Hip Hop the hippie the hippie
+Hip hip hop and you don't stop
+響く Beats に刻むヒストリー
+世界にたった一つのストーリー
+```
