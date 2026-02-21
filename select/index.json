@@ -1,0 +1,16 @@
+{
+  "version": 1,
+  "base_track": "ボコボコのMIC",
+  "base_artist": "晋平太",
+  "createdAt": "2026-02-21T07:01:46.720125Z",
+  "candidates": [
+    {
+      "id": "petitlyrics_1",
+      "source": "petitlyrics",
+      "title": "ボコボコのMIC",
+      "artist": "晋平太",
+      "has_synced": false,
+      "path": "select/pl_01_ボコボコのMIC_晋平太.txt"
+    }
+  ]
+}
